@@ -1,0 +1,1 @@
+%Explicacao no relatorio pdf
